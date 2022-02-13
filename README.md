@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mangointhewoods
+- 👀 I’m interested in travelling, maths and coding
+- 🌱 I’m currently learning the basics of the coding
+- 💞️ I’m looking to collaborate on ... umm... not sure yet
+- 📫 How to reach me?? Well that's an interesrting question...
